@@ -1,3 +1,3 @@
 ## About the Project
-just a silly project :D
+school project
 > “Bocchi The Rock” - Nijika
